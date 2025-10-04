@@ -10,12 +10,12 @@ You can send DM if you need advanced tools.
 
 ## Contact
 
-- discord: erikerik116
 
+Gmail: benjamin.bigdev@gmail.com
 
-- telegram: @erikerik116
+Telegram: [@SOLBenjaminCup](https://t.me/SOLBenjaminCup)
 
-
+Discord: [@.benjamincup](https://discord.com/channels/@me/1305610537790476382)
 
 ### And Much More!
 - Discover even more features designed to optimize your launch experience and help you profit from your Pump.Fun launches.
